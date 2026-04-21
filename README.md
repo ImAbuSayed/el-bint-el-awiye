@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي نور عيني
+> قلبي معاك طول ليلي
+> انت روحي وكل المنى
+> عايش في قلبي يا هوى
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
